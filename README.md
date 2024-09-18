@@ -1,0 +1,2 @@
+# Naprawa-stanu-i-poziomu-uj-oraz-delt-w-jeziorach-rzekach-i-morzach-Polski-i-Planety
+Naprawa stanu i poziomu ujść oraz delt w jeziorach, rzekach i morzach Polski i Planety ! Naszym celem jest wspólna praca nad przywróceniem właściwego stanu gospodarki wodnej . Celem jest udrożnianiem ujść rzek, naprawą delt oraz poprawą poziomu wód w jeziorach, rzekach i zbiornikach wodnych.  Działania te są kluczowe, aby zapobiec , klęskom natury
